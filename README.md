@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **tineshraj1408@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1DXNx-uJxgkvAaDGTMelWq2BREBa6xFtX/view?usp=drive_link](https://drive.google.com/file/d/1DXNx-uJxgkvAaDGTMelWq2BREBa6xFtX/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1DXNx-uJxgkvAaDGTMelWq2BREBa6xFtX/view?usp=drive_link](https://drive.google.com/file/d/19MR83LJZ5_ZWVAIhC4F9Ee_8ERmp8aTn/view?usp=sharing)
 
 - ⚡ Fun fact **I'm Batman**
 
